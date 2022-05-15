@@ -1,2 +1,2 @@
 # repositorio
-Trabalhos realizados com objetivos de ser apreciado e compartilhado
+Trabalhos realizados com objetivo de serem apreciados e compartilhados
